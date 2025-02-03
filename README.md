@@ -1,2 +1,0 @@
-# afimzr.github.io
-Website
